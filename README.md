@@ -1,8 +1,9 @@
 <h1>Holigabet: Güncel Giriş Adresi ve Platform İncelemesi</h1>
-<B><a href="https://holiganbet1040.com.tr">BETTURKEY GİRİŞ İÇİN TIKLAYINIZ</a></B><br>
-<B><a href="https://holiganbet1040.com.tr">BETTURKEY GİRİŞ İÇİN TIKLAYINIZ</a></B><br>
-<B><a href="https://holiganbet1040.com.tr">BETTURKEY GİRİŞ İÇİN TIKLAYINIZ</a></B><br>
-<B><a href="https://holiganbet1040.com.tr">BETTURKEY GİRİŞ İÇİN TIKLAYINIZ</a></B><br>
+<B><a href="https://holiganbet1040.com.tr">HOLİGANBET GİRİŞ İÇİN TIKLAYINIZ</a></B><br>
+<B><a href="https://holiganbet1040.com.tr">HOLİGANBET GİRİŞ İÇİN TIKLAYINIZ</a></B><br>
+<B><a href="https://holiganbet1040.com.tr">HOLİGANBET GİRİŞ İÇİN TIKLAYINIZ</a></B><br>
+<B><a href="https://holiganbet1040.com.tr">HOLİGANBET GİRİŞ İÇİN TIKLAYINIZ</a></B><br>
+
 
 
 <h2>Holigabet Giriş ve Güvenlik</h2><b></b>
